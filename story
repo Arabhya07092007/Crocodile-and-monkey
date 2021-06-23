@@ -5,3 +5,5 @@ He was very happy.One fine day, a crocodile swam up to that tree and told the mo
 traveled a long distance and was in search of food as he was very hungry. The kind monkey offered
 him a few rose apples. The crocodile enjoyed them very much and asked the monkey whether he could
 come again for some more fruit. The generous monkey happily agreed.
+
+The crocodile returned the next day. And the next. And the next one after that.
